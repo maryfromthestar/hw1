@@ -25,7 +25,8 @@
 
 ## Любимая цитата
 >“I don’t believe perfection exists in this world,
->>>but there are infinite amount of chances to being close to it.”
+> but there are infinite amount of chances to being close to it.”
+
 Дэхен из B.A.P
 
 ## Контакты:
